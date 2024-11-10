@@ -1,5 +1,7 @@
 # Network Activation Code
-* bTjT2uyop-s51-D_TQ
-* M9qIr-yop6gjGCv_TQ
-* SfR0aOyop6gjGCv_TQ
-* x0-GEeyop4evlzb-TQ
+* Wga8vuyop-s5p-X_TQ
+* 9NP8yOyop-s5ncr_TQ
+* Gb-WGOyop-s51-D_TQ
+* ubKa9Oyop-fdkjD-TQ
+* uiwZgOyop-edeWz-TQ
+* l82AFOyop6gjGCv_TQ
