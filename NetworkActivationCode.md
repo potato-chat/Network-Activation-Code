@@ -1,8 +1,6 @@
 # Network Activation Code
-* uyrYg-yop-kE1vb_TQ
-* 8tcP7uyop-kE1vb_TQ
-* k-cGyOyop-kE0PT-TQ
-* FmTxy-yop-s55vL-TQ
-* b1no8eyop0KJWMP_TQ
-* v8ifAOyop0KJUvH-TQ
-* 6iFNW-yop0KJAPT_TQ
+* hxHxoeyop-kE0PT-TQ
+* eb5S3-yop0KJWMP_TQ
+* _atnJuyop-fdjBr_TQ
+* zONOvuyop-fdjBr_TQ
+* cO1t5Oyop-fdkjD-TQ
